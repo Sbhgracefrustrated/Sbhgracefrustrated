@@ -8,3 +8,4 @@
 Sbhgracefrustrated/Sbhgracefrustrated is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+This is the real sbhgrace i did not make this post. I'm still being hacked I had to get a new phone I am so embarrassed I don't know why these people are doing this to me don't give them any more money 
